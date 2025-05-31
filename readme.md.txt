@@ -1,1 +1,1 @@
-halo my name is dhia, im a progammer
+halo hello my name is dhia, im a programmer. im learning at timedoors. my teacher is mr althaf
